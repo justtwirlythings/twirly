@@ -71,6 +71,7 @@ Venue</h1>
 <p>
 Kelly has branched out to calling English Country dances and is glad to incorporate them at teen+ events. Kelly also dabbles in historical costuming and may well be able to dress accordingly.</p>
 
+<h1>Pricing</h1>
 <p>
 Pricing depends on duration, location, and complexity. Non-profits, free-to-the-public events, public schools, and churches receive a discounted rate.
 </p>
