@@ -61,7 +61,7 @@ We generally dance to fiddle tunes that have a specific, repetitive count. It he
 We can bring recorded music, work with your band, or suggest local bands and musicians (not just fiddlers!) that are already familiar with such tunes.
 I’ll also teach a basic waltz - it’s just walking with rhythm and will come in handy forever.
 </p><p>
-If it’s just the caller and recorded music, we have a powerful speaker that operates on battery. If you opt for a live band, we’ll need to discuss sound when booking. Venues often have sound systems ready for just such purposes.</p>
+If it’s just the caller and recorded music, we have a powerful speaker that operates on battery. If you opt for a live band, we’ll need to discuss sound when booking. Venues often have sound systems ready for just such purposes. If you have a DJ, we're happy to work with them.</p>
 
 <h1>
 Venue</h1>
